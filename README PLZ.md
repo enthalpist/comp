@@ -1,2 +1,2 @@
-# Disregard me plz
+# Disregard this repo plz
 thanks
