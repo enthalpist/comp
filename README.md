@@ -1,2 +1,2 @@
-# comp
-Crimson comp documents! :D
+# Disregard me plz
+thanks
